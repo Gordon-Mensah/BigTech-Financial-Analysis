@@ -75,6 +75,8 @@ For inquiries or collaborations, feel free to connect:
 
 ## 🖼️ Preview
 ![image](https://github.com/user-attachments/assets/d04f5edb-f9f8-4f0f-a208-0ed3ee1e0b68)
+![image](https://github.com/user-attachments/assets/bc20b17b-2ca0-4f26-b0f9-91e7522b23e8)
+
 
 ---
 
